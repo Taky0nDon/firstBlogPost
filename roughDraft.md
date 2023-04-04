@@ -1,4 +1,4 @@
-<p style="text-align: center"> # SOME CLEVER TITLE</p>
+# SOME CLEVER TITLE
 
   I began the first copy of this rought draft in the from seat of a car I hope I can afford the payments on. Putting the pen to paper, I think about my sore feet and the 10,843 steps I've taken in the last 6.5 hours. The morning snow turned to rain before I could finish sheltering the for-sale plants from the elements, leaving those leg hands cold and wet as well. I like snow, and wish it managed to stay solid a little longer.
   
